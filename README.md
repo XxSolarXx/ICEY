@@ -1,2 +1,2 @@
 # ICEY
-just stuff i need you guys can also use if needed
+IF YOU GUYS NEED ANYTHING THAT U THINK I HAVE ADD MY DISCORD ytz_solar
